@@ -26,5 +26,6 @@
 ---
 
 ### 📫 Reach Me  
-**Email:** youremail@gmail.com  
-**Instagram:** @your_insta
+**Email:** aqeelahmed.am5@gmail.com 
+**Linkdin:** www.linkedin.com/in/
+aqeel-ahmed-58a822317
